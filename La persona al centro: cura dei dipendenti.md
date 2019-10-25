@@ -14,7 +14,7 @@
 
 ### Attività consolidate
 
-#### formazione
+#### formazione --> Mondora offre ai suoi dipendenti la possibilità di formazione continua dando ad ognuno la possibilità di partecipare a corsi di formazione per aumentare le proprie conoscenze, questo perchè vede l'azienda come un posto in cui la persona ha la possibilità di accrescere il proprio sapere e la propria personalità. Oltre a questo, alcuni dipendenti organizzano dei corsi di formazione per i colleghi. 
 
 #### 4to5
 

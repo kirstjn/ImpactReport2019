@@ -3,6 +3,9 @@
 ## Nuove attività 2019
 
 ### progetto Alessia nelle scuole
+Sto leggendo un libro che si intitola ‘I bambini pensano grande’, una esperienza di un insegnante che ha condotto  una classe di bambini della scuola elementare, dalla prima alla quinta classe, e coi quali ha sperimentato quanto il loro pensiero sia vivo e in evoluzione.
+Mi piace l’idea di collaborare con le scuole, assumendomi la responsabilità di genitore e di adulto nell’educare dei bambini in collaborazione con i maestri. Mi piace l’idea di cocreare progetti scolastici che permettano di evidenziare l’inestimabile valore delle piccole scuole di paese. Questo pensiero e questi sentimenti sono alla base del coinvolgimento di :m nelle scuole
+
 
 ### Laboratori di Arte
 
